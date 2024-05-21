@@ -1,4 +1,5 @@
 Non-Surgical Options for Spine Pain Relief
+
 Back pain is a common issue that affects millions of people worldwide, often leading to discomfort and limiting daily activities. For many, the prospect of surgery can be daunting, prompting them to seek non-surgical options for relief. As a leading spine specialist in Pune, Dr. Sachin Mahajan offers a range of non-invasive treatments to help manage and alleviate spine pain. In this blog, we’ll explore various non-surgical options available to patients seeking effective spine pain relief.
 
 Understanding Spine Pain
